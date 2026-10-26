@@ -16,3 +16,4 @@
 › Tokyo Ghoul<br>
 
 › *Active on Discord-* [`.sea0_0`](https://discord.com/users/1287254628894773307)
+![My banner](./banner.png)
