@@ -7,13 +7,13 @@
 › my favorite franchise is Resident Evil, and media franchise Tokyo Ghoul.<br>
 
 ﹕active on discord -- 
-# ✦ Hola, I'm Sea ✦
+# ۶*Hola, I'm Sea*ৎ
  ──────────────────────────────────────────────────────────────────────────────𓏼  
-**After Effects editor · Windows customization enthusiast · Catppuccin enjoyer**
+*After Effects editor · Windows customization enthusiast · Catppuccin enjoyer*
+› i make profile pictures, banners, posters, edits, and other things in After Effects.
+› i'm also quite interested in desktop ricing, and love customizing my Windows desktop and making it feel like mine.
 
-﹕i make profile pictures, banners, posters, edits, and other things in After Effects. I also love customizing my Windows desktop and making it feel like mine.
-
-### A few things I like
+# A few things I like--
 - 🎨 The cozy Catppuccin color palette
 - 🎧 Listening to music
 - 📺 Watching anime and reading manga
@@ -23,4 +23,4 @@
 - **Resident Evil**
 - **Tokyo Ghoul**
 
-## Active on Discord- [`.sea0_0`](https://discord.com/users/1287254628894773307)
+› *Active on Discord-* [`.sea0_0`](https://discord.com/users/1287254628894773307)
