@@ -19,7 +19,7 @@
 - 📺 Watching anime and reading manga
 - ♟️ Chess and other games
 
-** Favorite franchises **
+**Favorite franchises**
 - Resident Evil
 - Tokyo Ghoul
 
