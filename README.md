@@ -6,13 +6,13 @@
 › i'm also quite interested in desktop ricing, and love customizing my Windows desktop and making it feel like mine.<br>
 
  *A few things I like*--
-- 🎨 The cozy Catppuccin color palette
-- 🎧 Listening to music
-- 📺 Watching anime and reading manga
-- ♟️ Chess and other games
+› 🎨 The cozy Catppuccin color palette. <br>
+› 🎧 Listening to music. <br>
+› 📺 Watching anime, reading manga, and sometimes novels too. <br>
+› ♟️ Chess and other games. <br>
  
- *Favorite franchises*--
-- Resident Evil
-- Tokyo Ghoul
+ *Favorite franchises*--<br>
+› Resident Evil<br>
+› Tokyo Ghoul<br>
 
 › *Active on Discord-* [`.sea0_0`](https://discord.com/users/1287254628894773307)
