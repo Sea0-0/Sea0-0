@@ -5,11 +5,11 @@
 › i make profile pictures, banners, posters, edits, and other things in After Effects.<br>
 › i'm also quite interested in desktop ricing, and love customizing my Windows desktop and making it feel like mine.<br>
 
- *A few things I like*--
-› 🎨 The cozy Catppuccin color palette. <br>
-› 🎧 Listening to music. <br>
-› 📺 Watching anime, reading manga, and sometimes novels too. <br>
-› ♟️ Chess and other games. <br>
+ *A few things I like*--<br>
+›  The cozy Catppuccin color palette. <br>
+›  Listening to music. <br>
+›  Watching anime, reading manga, and sometimes novels too. <br>
+›  Chess and other games. <br>
  
  *Favorite franchises*--<br>
 › Resident Evil<br>
